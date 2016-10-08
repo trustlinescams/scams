@@ -1,0 +1,2 @@
+# scams
+Trustline Securities Scams
